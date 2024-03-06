@@ -1,3 +1,0 @@
-# 1maThiagoPCsite
-## NEYMARJRBESTGOAT 
-### BigThigasGoat
